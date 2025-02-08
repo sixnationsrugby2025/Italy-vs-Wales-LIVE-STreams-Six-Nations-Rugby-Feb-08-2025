@@ -2,7 +2,7 @@
 The Six Nations Championship continues with an exciting match-up between Italy and Wales. Both teams are eager to prove themselves in the 2025 tournament, and this clash promises to be an intense battle of skill, strength, and strategy. Italy will be looking to build on their strong performances in recent years, while Wales hopes to regain their winning form. This game could have significant implications for both teams as they aim for a strong finish in the competition. With both teams boasting a mix of experienced players and emerging talent, fans can expect a thrilling contest.
 
 
-✅➡️ Italy vs Wales LIVE ⬅️
+✅➡️ [Italy vs Wales LIVE](https://trusthubmedia.com/app/aff/go/omarfaruk?i=3) ⬅️
 
 
 Italy, under the guidance of coach Kieran Crowley, has been steadily improving and will be confident on home soil. With players like Paolo Garbisi, a key playmaker, and rising stars such as Ange Capuozzo, the Italians will look to capitalize on any mistakes Wales makes. The Italian forward pack will need to be at their best to compete against Wales' powerful set-piece and dynamic backline.
